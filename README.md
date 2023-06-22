@@ -1,7 +1,8 @@
-Ishan Singh
 
 
-                              ![image](https://github.com/Ishansingh438/Ishan/assets/105629591/22ea1e04-0d33-4a74-949e-f8fc938bba50)
+
+                               ![image](https://github.com/Ishansingh438/Ishan/assets/105629591/d267663a-8205-4b7c-bcd3-a509ba24885b)
+     
 
                               
 
@@ -13,9 +14,7 @@ Ishan Singh
 
 𝘊𝘦𝘳𝘵𝘪𝘧𝘪𝘤𝘢𝘵𝘪𝘰𝘯 :- 
 
-𝘍𝘶𝘭𝘭 𝘚𝘵𝘢𝘤𝘬 𝘋𝘢𝘵𝘢 𝘚𝘤𝘪𝘦𝘯𝘤𝘦: <a target="blank" href="https://certificates.almabetter.com/en/verify/04617127728876?ref=email">
-      <img src="https://verified-bucket.s3.eu-central-1.amazonaws.com/cert/04617127728876.png" alt="">
-    </a>
+𝘍𝘶𝘭𝘭 𝘚𝘵𝘢𝘤𝘬 𝘋𝘢𝘵𝘢 𝘚𝘤𝘪𝘦𝘯𝘤𝘦:  https://certificates.almabetter.com/en/verify/04617127728876?ref=email
 
 𝘙𝘦𝘢𝘤𝘩 𝘰𝘶𝘵 𝘵𝘰 𝘮𝘦:-
 
