@@ -35,7 +35,7 @@
 
 
 ![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/232cf38e-59c4-40cb-a748-4193806f39a7)
-![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/8e7bcf24-2cb1-45d2-94b9-793c3953a9b3)
+![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/494a77c7-c01a-4281-82a2-d69b0938c648)
 ![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/deb1d4ca-2018-4093-8726-53acad2c47d0)
 ![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/7d60c884-0e05-407c-b106-f3f76e01058f)
 ![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/5e3bf2ca-298e-4a19-b3d7-a51f0c0de5f7)
