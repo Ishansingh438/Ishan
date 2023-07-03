@@ -21,6 +21,7 @@
 𝘊𝘦𝘳𝘵𝘪𝘧𝘪𝘤𝘢𝘵𝘪𝘰𝘯 :- 
 
 𝘍𝘶𝘭𝘭 𝘚𝘵𝘢𝘤𝘬 𝘋𝘢𝘵𝘢 𝘚𝘤𝘪𝘦𝘯𝘤𝘦:  https://certificates.almabetter.com/en/verify/04617127728876?ref=email
+https://i.gifer.com/STRm.mp4
 
 𝘏𝘢𝘤𝘬𝘦𝘳𝘙𝘢𝘯𝘬:  https://www.hackerrank.com/abhishekranjan46?hr_r=1
 
