@@ -34,7 +34,8 @@
 
 
 
-![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/8c5aa290-9e73-44cc-8c73-cb6c0a7af16f)
+![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/c97b4ee2-033e-4255-ac19-3b07b186f4c3)
+
 
 
 ![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/494a77c7-c01a-4281-82a2-d69b0938c648)
