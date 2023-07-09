@@ -1,4 +1,5 @@
-![image](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/2014c1de-0313-46d9-a072-0038f8600f8a)
+![wallpaperflare-cropped](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/4e714ba1-e039-406f-a27a-b2cc486855df)
+
 
 
 
