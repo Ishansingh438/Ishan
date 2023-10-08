@@ -17,7 +17,7 @@
 
 𝘋𝘢𝘵𝘢 𝘈𝘯𝘢𝘭𝘺𝘴𝘵:  https://drive.google.com/file/d/1ffbVE4dNDCkmMxfgrZD57NNjR4Xq19Lu/view?usp=sharing
 
-𝘋𝘢𝘵𝘢 𝘚𝘤𝘪𝘦𝘯𝘵𝘪𝘴𝘵: https://drive.google.com/file/d/1cHWR4yVouCUe4cn4TQgwbD7GPvDbLBbM/view?usp=sharing
+𝘋𝘢𝘵𝘢 𝘚𝘤𝘪𝘦𝘯𝘵𝘪𝘴𝘵: https://drive.google.com/file/d/1jLOIpPMsgYJ26YQxsDtVTOsNhCdAg3F8/view?usp=sharing
 
 𝘊𝘦𝘳𝘵𝘪𝘧𝘪𝘤𝘢𝘵𝘪𝘰𝘯 :- 
 
