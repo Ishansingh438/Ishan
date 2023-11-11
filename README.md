@@ -1,4 +1,4 @@
-![Ishan Singh](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/5eed2393-98bb-4ce1-8367-f6d7ddbd1703)
+![Copy of Ishan Singh](https://github.com/Ishansingh438/Ishansingh438/assets/105629591/1d16745c-73bb-45ed-b69e-fe3790d2f866)
 
 
 
